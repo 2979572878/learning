@@ -1,2 +1,3 @@
 # learning
-daily learning in chunyu
+daily learning daily show
+
